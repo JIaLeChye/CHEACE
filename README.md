@@ -1,4 +1,4 @@
-# This Webpage is Devolope by The CHEACE 
+# This Webpage is Devolope by CHEACE 
 
 Any Enquiry, you can reach me at jialecjl2016@outlook.com 
 
